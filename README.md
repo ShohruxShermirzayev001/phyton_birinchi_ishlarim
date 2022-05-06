@@ -1,0 +1,1 @@
+# phyton_birinchi_ishlarim
